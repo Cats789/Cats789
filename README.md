@@ -1,6 +1,6 @@
 ## Hey there!! 👋😄
-## My pronous: she/her
-## Fun Fact: I can wiggle my ears on command
+## My pronous: she/her 👧
+## Fun Fact: I can wiggle my ears on command 😆
 ## I ❤️ math
 <!--
 **Cats789/Cats789** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
